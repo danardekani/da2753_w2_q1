@@ -1,2 +1,2 @@
-# da2753_w2_q1
-# da2753_w2_q1
+Tandon homework- Week 2, Assignment 2, Question 1
+Daniel Ardekani
